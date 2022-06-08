@@ -1,1 +1,0 @@
-# VladislavSmekhnov.github.io
